@@ -1,0 +1,1 @@
+Weekly projects that tested knowledge on relevant topics discussed in class. Students were given a week to complete each project. I did not download the project description(s) at the time and cannot currently find them.
